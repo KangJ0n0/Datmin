@@ -1,0 +1,2 @@
+# Datmin
+ALAMAKK
